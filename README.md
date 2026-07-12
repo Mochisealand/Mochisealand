@@ -3,7 +3,9 @@
 
 I'm a little shy! please **DON'T, DON'T**, C+H WITH ME, **unless** u are my virtual mom or really close friends!.. or if I do first! 
 It's better w2i if u wanna talk to me
+
 **Moods**
+
 - ⛔/Busy = DNI Unless My virtual mom or REALLY CLOSE FRIENDS...
 - 🌙/Away = I’m online! w2i...
 - Lf rp = Do nothing,I just wanna make rp...
