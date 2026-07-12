@@ -1,6 +1,6 @@
 ## ηєє∂ кησω! 🦭
-
 αвσυт мє! 
+
 I'm a little shy! please **DON'T, DON'T**, C+H WITH ME, **unless** u are my virtual mom or really close friends!.. or if I do first! 
 It's better w2i if u wanna talk to me
 **Moods**
