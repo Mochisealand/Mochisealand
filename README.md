@@ -16,4 +16,5 @@ It's better w2i if u wanna talk to me
 - I don't like share my other socials apps...
 - I promise that I like talking! I'm not Bad, talk to me!..in whisp better.
 I'm on so many fandoms, ask me! if I don't know, talk to me more about it!
+
 I love so much my virtual mom.. ଘ(੭ˊᵕˋ)੭* @Mochifinland
